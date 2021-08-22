@@ -1,7 +1,7 @@
 ### Olá, eu sou a Luana! 🦸‍♀️
 
 
-🔭 Sou estágiaria;
+🔭 Sou estagiária;
 
 👩‍🎓 Graduanda em Sistemas de Informação; 
 
